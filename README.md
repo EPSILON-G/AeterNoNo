@@ -1,4 +1,4 @@
-# ​Salutation - 🍉
+# ​Salutations - 🦐
 
 I'm a French student trying to learn new things.
 
